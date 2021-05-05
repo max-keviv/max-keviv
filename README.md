@@ -1,4 +1,4 @@
-![](https://github.com/max-keviv/max-keviv/blob/main/images/I_AM_VIVEK.png)
+
 
 <h1 align="center">Hi 👋, I'm Vivek Vishal</h1>
 <h3 align="center">A passionate web developer who loves to contribute to Open Source organization and keeps learning:)</h3>
