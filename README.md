@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **btk.vivekvishal@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1GxfG_fP3cjCIxQYR78J4PNp-OGGBTQsu/view?usp=sharing](https://drive.google.com/file/d/1GxfG_fP3cjCIxQYR78J4PNp-OGGBTQsu/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/138mQIJku7A-20SiumZoszexBaLtWa2Wl/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
